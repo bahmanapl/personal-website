@@ -1,1 +1,1 @@
-Sitemap: https://fastpages.fast.ai/sitemap.xml
+Sitemap: https://bahmanapl.github.io/personal-website/sitemap.xml
