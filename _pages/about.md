@@ -10,6 +10,6 @@ I learned to be extrovert so I am an ambivert for a decade and half at least. I 
 
 What matter the most to me :
 <br>
-Authenticity , Brutal honesty , learner and teacher mentality and optimism. My motivation are intrinsic as long as my basic needs covered. 
+Modern Stoic principles ,Authenticity , Brutal honesty , learner and teacher mentality. My motivation are intrinsic as long as my basic human needs covered. 
 
 
